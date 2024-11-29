@@ -46,10 +46,6 @@ Reassess his residency or asylum status if his actions are found to contravene U
 Ensure he ceases all harmful online campaigns targeting women, whether in the United States or abroad.
 Allowing such behavior to go unchecked risks providing a platform for hate and endangering the lives of women in vulnerable societies. We trust that U.S. authorities will act swiftly and justly in alignment with their values and legal frameworks to address this matter.
 
-Attachments:
-
-Screenshots of tweets and posts by Ahmed Noorani.
-Public statement from his second wife.
 Sincerely,
 
 Concerned Citizens of Pakistan`;
